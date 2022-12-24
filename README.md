@@ -1,0 +1,1 @@
+# khasus-pertama
